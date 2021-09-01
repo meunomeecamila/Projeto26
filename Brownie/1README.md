@@ -1,0 +1,1 @@
+Brownie é uma sobremesa de chocolate típico da culinária dos Estados Unidos e pode considerar-se um bolo feito num tabuleiro para bolos e partido em pequenos quadrados. É geralmente acompanhado por sorvete, mas pode ter uma cobertura de geléia de Damasco e pedaços de nozes na massa. Vamos ver como fazer essas delícias?
